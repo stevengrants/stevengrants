@@ -21,7 +21,9 @@ me !
 
  massive steven grant and marc spector kinnie. they are both me
  
-<img width="505" height="505" alt="image" src="https://github.com/user-attachments/assets/d6624d8c-90c5-451e-89c6-1764b6d00dcd" /> <img width="505" height="505" alt="image" src="https://github.com/user-attachments/assets/e0834d34-c7f5-46bd-9fa3-aa7c9294fc7b" />
+<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/1f161360-d3dc-4d4a-be63-c9e39d1b9106" /> <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/86d514fc-28f4-44fb-ac64-01972b0e81df" />
+
+
 
 
 

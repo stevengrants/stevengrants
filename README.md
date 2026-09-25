@@ -17,7 +17,7 @@ mee and steven grant :3c
 
 oo oo also me and sportacus :3 art by my friend rory (@spaceprobes!)
 
-<img width="500" height="400" alt="image" src="https://github.com/user-attachments/assets/6b4c63a6-5145-45ce-9b14-3fda942c9623" />
+<img width="300" height="400" alt="image" src="https://github.com/user-attachments/assets/6b4c63a6-5145-45ce-9b14-3fda942c9623" />
 
 
 me ! 
@@ -49,9 +49,8 @@ both images made by me, heh.
 
 i also love the rookie and b99 and many other shows
 
-<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/6fc56f6e-3192-4d1e-ae2f-161c02f32620" /> <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/8a4e8e34-87a6-4f0b-8318-295286de81e2" />
+<img width="400" height="300" alt="image" src="https://github.com/user-attachments/assets/6fc56f6e-3192-4d1e-ae2f-161c02f32620" /> <img width="400" height="300" alt="image" src="https://github.com/user-attachments/assets/8a4e8e34-87a6-4f0b-8318-295286de81e2" />
 
-<img width="200" height="200" alt="gif" src="https://github.com/user-attachments/assets/59f4c1b6-37a3-4336-a2ec-c3e6b21632e3" /> <img width="200" height="200" alt="gif" src="https://github.com/user-attachments/assets/56d6c77d-f41b-4de1-9f40-dee803db6450" />
 
 
 

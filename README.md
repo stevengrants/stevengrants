@@ -19,6 +19,13 @@ me !
 
  <img width="500" height="400" alt="image" src="https://github.com/user-attachments/assets/0ad4981d-4e68-4b85-89d4-7ad8631a8294" />
 
+ massive steven grant and marc spector kinnie. they are both me
+ 
+<img width="505" height="505" alt="image" src="https://github.com/user-attachments/assets/d6624d8c-90c5-451e-89c6-1764b6d00dcd" /> <img width="505" height="505" alt="image" src="https://github.com/user-attachments/assets/e0834d34-c7f5-46bd-9fa3-aa7c9294fc7b" />
+
+
+
+
 DNI IF YOU BASH YUMESHIPPERS
 
 DNI IF YOU'RE AN ENDO-SYSTEM/WILLOGENIC SYSTEM, OR IF YOU SUPPORT THESE SYSTEMS. YOU ARE FAKING A DEHABILITATING DISORDER THAT RUINS MANY PEOPLE LIVES.

@@ -17,7 +17,7 @@ mee and steven grant :3c
 
 me ! 
 
- <img width="300" height="400" alt="image" src="https://github.com/user-attachments/assets/0ad4981d-4e68-4b85-89d4-7ad8631a8294" />
+ <img width="300" height="500" alt="image" src="https://github.com/user-attachments/assets/0ad4981d-4e68-4b85-89d4-7ad8631a8294" />
 
 DNI IF YOU BASH YUMESHIPPERS
 

@@ -15,13 +15,49 @@ mee and steven grant :3c
 
 <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/9e58daf4-3c5f-4989-9c12-98b84f9620aa" />
 
+oo oo also me and sportacus :3 art by my friend rory (@spaceprobes!)
+
+<img width="500" height="400" alt="image" src="https://github.com/user-attachments/assets/6b4c63a6-5145-45ce-9b14-3fda942c9623" />
+
+
 me ! 
 
  <img width="500" height="400" alt="image" src="https://github.com/user-attachments/assets/0ad4981d-4e68-4b85-89d4-7ad8631a8294" />
 
+ me on the left, my amazing gf riley on the right, and twix my lovely gf in the middle :3 art by me! i love my partners very, very dearly.
+
+ <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/7d5813c6-e9e6-405d-a126-6a2f3d4b305c" />
+
+me and my amazing sister kass. i love you so so so very dearly. (art by my her :3)
+
+ <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/2298a938-977c-4aa5-8340-a7be682177ae" />
+
+me and my loved ones <3 (art by my sister kass :3)
+
+ <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/0f17a76f-4d51-413e-80ef-69cb42ba89ac" />
+
+
+
+
  massive steven grant and marc spector kinnie. they are both me
  
 <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/1f161360-d3dc-4d4a-be63-c9e39d1b9106" /> <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/86d514fc-28f4-44fb-ac64-01972b0e81df" />
+
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/da5e828e-b94a-4ccf-80bc-8b7e668aecb8" /> <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/37732e61-b3bc-44a1-9489-002101e0a593" />
+
+both images made by me, heh.
+
+i also love the rookie and b99 and many other shows
+
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/6fc56f6e-3192-4d1e-ae2f-161c02f32620" /> <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/8a4e8e34-87a6-4f0b-8318-295286de81e2" />
+
+<img width="200" height="200" alt="gif" src="https://github.com/user-attachments/assets/59f4c1b6-37a3-4336-a2ec-c3e6b21632e3" /> <img width="200" height="200" alt="gif" src="https://github.com/user-attachments/assets/56d6c77d-f41b-4de1-9f40-dee803db6450" />
+
+
+
+
+
+
 
 
 

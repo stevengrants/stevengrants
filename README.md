@@ -49,7 +49,7 @@ waowzee !
 
 <div align="center"><img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/da5e828e-b94a-4ccf-80bc-8b7e668aecb8" /> <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/37732e61-b3bc-44a1-9489-002101e0a593" />
 
-<div align="center">both images made by me and my gf heh
+<div align="center">both images made by me and my gf heh. she is the funniest person i know, i love her.
 
 <div align="center">i also love the rookie and b99 and many other shows
 

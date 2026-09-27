@@ -2,59 +2,57 @@ waowzee !
 <div align="center">
 
   <img src="https://visitor-badge.laobi.icu/badge?page_id=meowvile.profile&left_color=(#9cb5d9) &right_color=gray&title=(travelers of the night) &v=centerfix99" alt="travelers of the night" />
- - my name's callie, moonie, si, or hound!
-- i'm a medically recognised osdd-1b system.
-i love my girlfriends twix, riley, and pricey so so much.
+<div align="center"> - my name's callie, moonie, si, or hound!
+<div align="center">- i'm a medically recognised osdd-1b system.
+<div align="center">i love my girlfriends twix, riley, and pricey so so much.
 
 
-n1 steven grant yumeshipper ever. das my bf fr 
-i love maned wolves, bunnies, and many other animals! 
+<div align="center">n1 steven grant yumeshipper ever. das my bf fr 
+<div align="center">i love maned wolves, bunnies, and many other animals! 
 
 
-i'm 19 ^_^ -13 dni please!
+<div align="center">i'm 19 ^_^ -13 dni please!
 
 
-mee and steven grant :3c 
+<div align="center">mee and steven grant :3c 
 
-<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/9e58daf4-3c5f-4989-9c12-98b84f9620aa" />
+<div align="center"><img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/9e58daf4-3c5f-4989-9c12-98b84f9620aa" />
 
-oo oo also me and sportacus :3 art by my friend rory (@spaceprobes!)
+<div align="center">oo oo also me and sportacus :3 art by my friend rory (@spaceprobes!)
 
-<img width="300" height="400" alt="image" src="https://github.com/user-attachments/assets/6b4c63a6-5145-45ce-9b14-3fda942c9623" />
-
-
-me ! 
-
- <img width="500" height="400" alt="image" src="https://github.com/user-attachments/assets/0ad4981d-4e68-4b85-89d4-7ad8631a8294" />
-
- me on the left, my amazing gf riley on the right, and twix my lovely gf in the middle :3 art by me! i love my partners very, very dearly.
-
- <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/7d5813c6-e9e6-405d-a126-6a2f3d4b305c" />
-
-me and my amazing sister kass. i love you so so so very dearly. (art by my her :3)
-
- <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/2298a938-977c-4aa5-8340-a7be682177ae" />
-
-me and my loved ones <3 (art by my sister kass :3)
-
- <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/0f17a76f-4d51-413e-80ef-69cb42ba89ac" />
+<div align="center"><img width="300" height="400" alt="image" src="https://github.com/user-attachments/assets/6b4c63a6-5145-45ce-9b14-3fda942c9623" />
 
 
+<div align="center">me ! 
+
+<div align="center"> <img width="500" height="400" alt="image" src="https://github.com/user-attachments/assets/0ad4981d-4e68-4b85-89d4-7ad8631a8294" />
+
+<div align="center"> me on the left, my amazing gf riley on the right, and twix my lovely gf in the middle :3 art by me! i love my partners very, very dearly.
+
+<div align="center"> <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/7d5813c6-e9e6-405d-a126-6a2f3d4b305c" />
+
+<div align="center">me and my amazing sister kass. i love you so so so very dearly. (art by my her :3)
+
+<div align="center"> <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/2298a938-977c-4aa5-8340-a7be682177ae" />
+
+<div align="center">me and my loved ones <3 (art by my sister kass :3)
+
+<div align="center"> <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/0f17a76f-4d51-413e-80ef-69cb42ba89ac" />
 
 
- massive steven grant and marc spector kinnie. they are both me
+
+
+<div align="center"> massive steven grant and marc spector kinnie. they are both me
  
-<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/1f161360-d3dc-4d4a-be63-c9e39d1b9106" /> <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/86d514fc-28f4-44fb-ac64-01972b0e81df" />
+<div align="center"><img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/1f161360-d3dc-4d4a-be63-c9e39d1b9106" /> <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/86d514fc-28f4-44fb-ac64-01972b0e81df" />
 
-<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/da5e828e-b94a-4ccf-80bc-8b7e668aecb8" /> <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/37732e61-b3bc-44a1-9489-002101e0a593" />
+<div align="center"><img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/da5e828e-b94a-4ccf-80bc-8b7e668aecb8" /> <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/37732e61-b3bc-44a1-9489-002101e0a593" />
 
-both images made by me and my gf heh
+<div align="center">both images made by me and my gf heh
 
-i also love the rookie and b99 and many other shows
+<div align="center">i also love the rookie and b99 and many other shows
 
-<img width="400" height="300" alt="image" src="https://github.com/user-attachments/assets/6fc56f6e-3192-4d1e-ae2f-161c02f32620" /> <img width="400" height="300" alt="image" src="https://github.com/user-attachments/assets/8a4e8e34-87a6-4f0b-8318-295286de81e2" />
-
-
+<div align="center"><img width="400" height="300" alt="image" src="https://github.com/user-attachments/assets/6fc56f6e-3192-4d1e-ae2f-161c02f32620" /> <img width="400" height="300" alt="image" src="https://github.com/user-attachments/assets/8a4e8e34-87a6-4f0b-8318-295286de81e2" />
 
 
 
@@ -66,36 +64,38 @@ i also love the rookie and b99 and many other shows
 
 
 
-DNI IF YOU BASH YUMESHIPPERS
-
-DNI IF YOU'RE AN ENDO-SYSTEM/WILLOGENIC SYSTEM, OR IF YOU SUPPORT THESE SYSTEMS. YOU ARE FAKING A DEHABILITATING DISORDER THAT RUINS MANY PEOPLE LIVES.
-
-DNI IF YOU'RE RACIST/HOMOPHOBIC/TRANSPHOBIC/XENOPHOBIC/ISLAMOPHOBIC OR ANYTHING BIGOTRY OR IN-BETWEEN
 
 
-DNI IF YOU START SHIT FOR NO REASON
+<div align="center">DNI IF YOU BASH YUMESHIPPERS
 
-DNI IF YOU'RE UNDER 13 (I'M 19 ! I'M NOT A BABYSITTER !)
+<div align="center">DNI IF YOU'RE AN ENDO-SYSTEM/WILLOGENIC SYSTEM, OR IF YOU SUPPORT THESE SYSTEMS. YOU ARE FAKING A DEHABILITATING DISORDER THAT RUINS MANY PEOPLE LIVES.
 
-DNI IF YOU THINK R@PE/SA/N@ZI/RACIST JOKES ARE FUNNY
+<div align="center">DNI IF YOU'RE RACIST/HOMOPHOBIC/TRANSPHOBIC/XENOPHOBIC/ISLAMOPHOBIC OR ANYTHING BIGOTRY OR IN-BETWEEN
 
-DNI IF YOU SAY DEREALISING SHIT
 
-DNI IF YOU USE SLURS YOU CANNOT RECLAIM
+<div align="center">DNI IF YOU START SHIT FOR NO REASON
 
-DNI IF YOU'RE AN AI USER
+<div align="center">DNI IF YOU'RE UNDER 13 (I'M 19 ! I'M NOT A BABYSITTER !)
 
-DNI IF YOU BASH PEOPLE FOR WHAT THEY SHIP IF IT'S LEGAL AND NOT INCEST
+<div align="center">DNI IF YOU THINK R@PE/SA/N@ZI/RACIST JOKES ARE FUNNY
 
-DNI IF YOU'RE A PROSHITTER/DARKSHIPPER/COMSHIPPER OR WHATEVER THAT SHIT'S CALLED
+<div align="center">DNI IF YOU SAY DEREALISING SHIT
 
-DNI IF YOU'RE A MOUTHWASHER/BOYFRIEND TO DEATH FAN/SALLY FACE/HAZBIN HOTEL/HELLUVA BOSS FAN (UNLESS ALREADY FRIENDS.)
+<div align="center">DNI IF YOU USE SLURS YOU CANNOT RECLAIM
 
-DNI REALLY SEXUAL PEOPLE
+<div align="center">DNI IF YOU'RE AN AI USER
 
-DNI FAKECLAIMERS
+<div align="center">DNI IF YOU BASH PEOPLE FOR WHAT THEY SHIP IF IT'S LEGAL AND NOT INCEST
 
-DNI RAINE
+<div align="center">DNI IF YOU'RE A PROSHITTER/DARKSHIPPER/COMSHIPPER OR WHATEVER THAT SHIT'S CALLED
+
+<div align="center">DNI IF YOU'RE A MOUTHWASHER/BOYFRIEND TO DEATH FAN/SALLY FACE/HAZBIN HOTEL/HELLUVA BOSS FAN (UNLESS ALREADY FRIENDS.)
+
+<div align="center">DNI REALLY SEXUAL PEOPLE
+
+<div align="center">DNI FAKECLAIMERS
+
+<div align="center">DNI RAINE
 
 DNI OLD FRIENDS I HAVE NOT MADE UP WITH
 

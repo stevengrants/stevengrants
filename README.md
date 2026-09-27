@@ -1,7 +1,7 @@
 waowzee !
 <div align="center">
 
-  <img src="https://visitor-badge.laobi.icu/badge?page_id=meowvile.profile&left_color=darkred&right_color=gray&title=Travelers%20of%20the%20night&v=centerfix99" alt="Visitors" />
+  <img src="https://visitor-badge.laobi.icu/badge?page_id=meowvile.profile&left_color=#9cb5d9&right_color=gray&title=Travelers%20of%20the%20night&v=centerfix99" alt="Visitors" />
 <div align="center"> - my name's callie, moonie, si, or hound!
 <div align="center">- i'm a medically recognised osdd-1b system.
 <div align="center">i love my girlfriends twix, riley, and pricey so so much.

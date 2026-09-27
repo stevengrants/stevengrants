@@ -45,7 +45,7 @@ me and my loved ones <3 (art by my sister kass :3)
 
 <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/da5e828e-b94a-4ccf-80bc-8b7e668aecb8" /> <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/37732e61-b3bc-44a1-9489-002101e0a593" />
 
-both images made by me, heh.
+both images made by me and my gf heh
 
 i also love the rookie and b99 and many other shows
 

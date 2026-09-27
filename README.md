@@ -54,6 +54,7 @@ waowzee !
 <div align="center">i also love the rookie and b99 and many other shows
 
 <div align="center"><img width="400" height="300" alt="image" src="https://github.com/user-attachments/assets/6fc56f6e-3192-4d1e-ae2f-161c02f32620" /> <img width="400" height="300" alt="image" src="https://github.com/user-attachments/assets/8a4e8e34-87a6-4f0b-8318-295286de81e2" />
+<div align="center"> both images made by my gf <3.
 
 
 

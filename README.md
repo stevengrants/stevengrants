@@ -1,6 +1,4 @@
 waowzee !
-![](https://komarev.com/ghpvc/?username=stevengrants)
-<div align="center">
 
   <img src="https://visitor-badge.laobi.icu/badge?page_id=meowvile.profile&left_color=blue&right_color=gray&title=Travelers%20of%20the%20night&v=centerfix99" alt="Visitors" />
 <div align="center"> - my name's callie, moonie, si, or hound!

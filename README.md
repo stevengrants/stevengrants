@@ -5,7 +5,7 @@ waowzee !
 
 <div align="center"> - my name's callie, moonie, si, or hound!
 <div align="center">- i'm a medically recognised osdd-1b system.
-<div align="center">i love my girlfriends twix, riley, and pricey so so much.
+<div align="center">i love my girlfriends twix, riley, steven and pricey so so much.
 
 
 <div align="center">n1 steven grant yumeshipper ever. das my bf fr 

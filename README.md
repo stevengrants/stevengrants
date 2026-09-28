@@ -15,9 +15,10 @@ waowzee !
 <div align="center">i'm 19 ^_^ -13 dni please!
 
 
-<div align="center">mee and steven grant :3c 
+<div align="center">mee and steven grant :3c (second one is my moonsona yay!) 
 
-<div align="center"><img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/9e58daf4-3c5f-4989-9c12-98b84f9620aa" />
+<div align="center"><img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/9e58daf4-3c5f-4989-9c12-98b84f9620aa" /> <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/5f4c4a8b-b4c5-40d1-b0f4-0b1394312915" />
+
 
 <div align="center">oo oo also me and sportacus :3 art by my friend rory (@spaceprobes!)
 

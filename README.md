@@ -17,7 +17,8 @@ waowzee !
 
 <div align="center">mee and steven grant :3c (second one is my moonsona yay!) 
 
-<div align="center"><img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/9e58daf4-3c5f-4989-9c12-98b84f9620aa" /> <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/5f4c4a8b-b4c5-40d1-b0f4-0b1394312915" />
+<div align="center"><img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/9e58daf4-3c5f-4989-9c12-98b84f9620aa" /><img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/5cd07a4b-acb3-4d4d-80cc-1ea5f84b0123" />
+
 
 
 <div align="center">oo oo also me and sportacus :3 art by my friend rory (@spaceprobes!)

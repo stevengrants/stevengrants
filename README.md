@@ -23,6 +23,10 @@ waowzee !
 <div align="center">mee and steven grant :3c (second one is my moonsona yay!) 
 
 <div align="center"><img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/9e58daf4-3c5f-4989-9c12-98b84f9620aa" /><img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/5cd07a4b-acb3-4d4d-80cc-1ea5f84b0123" />
+ <div align="center"> MORE ART BY MEEE. I LOVE MOON KNIGHT SO MUCH.
+<div align="center"> <img width="300" height="300" alt="owaowowa-ezgif com-optimize" src="https://github.com/user-attachments/assets/b5f85c81-519f-4ddf-8a32-1c30d132027b" />
+
+
 
 
 

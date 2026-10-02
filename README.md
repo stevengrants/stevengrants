@@ -8,6 +8,10 @@ waowzee !
 <div align="center">i love my girlfriends twix, riley, steven and pricey so so much.
 <div align="center"> moon knight fandom iwc unless friend. i get anxious and have heart issues over it hrrmm
 
+ <div align="center"> THANKYOU SO FUCKING MUCH
+<div align="center"><img width="347" height="31" alt="image" src="https://github.com/user-attachments/assets/13c0fbb8-198e-4e9c-ab59-3a2687f4c55a" />
+
+
 
 <div align="center">n1 steven grant yumeshipper ever. das my bf fr 
 <div align="center">i love maned wolves, bunnies, and many other animals! 

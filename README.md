@@ -40,11 +40,11 @@ waowzee !
 
 <div align="center">me ! 
 
-<div align="center"> <img width="500" height="400" alt="image" src="https://github.com/user-attachments/assets/0ad4981d-4e68-4b85-89d4-7ad8631a8294" />
+<div align="center"> <img width="800" height="800" alt="image" src="https://github.com/user-attachments/assets/0ad4981d-4e68-4b85-89d4-7ad8631a8294" />
 
 <div align="center"> me on the left, my amazing gf riley on the right, and twix my lovely gf in the middle :3 art by me! i love my partners very, very dearly.
 
-<div align="center"> <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/7d5813c6-e9e6-405d-a126-6a2f3d4b305c" />
+<div align="center"> <img width="800" height="800" alt="image" src="https://github.com/user-attachments/assets/7d5813c6-e9e6-405d-a126-6a2f3d4b305c" />
 
 <div align="center">me and my amazing sister kass. i love you so so so very dearly. (art by my her :3)
 
@@ -52,7 +52,7 @@ waowzee !
 
 <div align="center">me and my loved ones <3 (art by my sister kass :3)
 
-<div align="center"> <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/0f17a76f-4d51-413e-80ef-69cb42ba89ac" />
+<div align="center"> <img width="800" height="800" alt="image" src="https://github.com/user-attachments/assets/0f17a76f-4d51-413e-80ef-69cb42ba89ac" />
 
 
 

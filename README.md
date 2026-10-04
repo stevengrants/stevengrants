@@ -1,4 +1,4 @@
-<div align="center"> [![My scrobbles](https://lastfm-recently-played.jeffreyca.workers.dev/svg?user=Samgolbacharoo)](https://www.last.fm/user/Samgolbacharoo)
+
 waowzee !
 <div align="center">
  

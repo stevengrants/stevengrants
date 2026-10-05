@@ -1,6 +1,6 @@
 
 <div align="center"> 
- [frix6x](https://github.com/frix6x) is callie's entitled beautiful amazing loving wife
+[frix6x](https://github.com/frix6x) is callie's entitled beautiful amazing loving wife
 <div align="center">
  
 ![](https://komarev.com/ghpvc/?username=stevengrants&color=868fcf&style=plastic&label=travelers+of+the+night&base=545)

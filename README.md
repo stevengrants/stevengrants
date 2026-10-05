@@ -10,7 +10,7 @@ waowzee !
 <div align="center"> moon knight fandom iwc unless friend. i get anxious and have heart issues over it hrrmm
 <div align="center"> n1 steven grnat yumeshipper + n1 marcsteven shipper :3c 
 
- <div align="center"> THANKYOU SO FUCKING MUCH [@entitlement-town](https://github.com/entitlement-town) [@ponytowns-rewards](https://github.com/entitlement-town)
+ <div align="center"> THANKYOU SO FUCKING MUCH ![@entitlement-town](https://github.com/entitlement-town) ![@ponytowns-rewards](https://github.com/entitlement-town)
 <div align="center"><img width="347" height="31" alt="image" src="https://github.com/user-attachments/assets/13c0fbb8-198e-4e9c-ab59-3a2687f4c55a" />
 <div align="center"> <img width="302" height="35" alt="image" src="https://github.com/user-attachments/assets/00d51fb1-7fb2-4ced-a275-3b8111922830" />
 

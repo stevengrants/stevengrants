@@ -20,6 +20,8 @@ THANKYOU SO FUCKING MUCH  [entitlement-town](https://github.com/entitlement-town
 
 <div align="center">n1 steven grant yumeshipper ever. das my bf fr 
 <div align="center"> <img width="400" height="400" alt="waow-ezgif com-video-to-gif-converter" src="https://github.com/user-attachments/assets/a0349c59-cf33-45e1-b293-71a28825e7b9" />
+<img width="400" height="400" alt="SIXSSEEVENVNNN-ezgif com-optimize" src="https://github.com/user-attachments/assets/d992521f-d45b-43f3-a738-f635ed1bd858" />
+
 
 <div align="center">i love maned wolves, bunnies, and many other animals! 
 

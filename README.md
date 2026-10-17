@@ -11,7 +11,8 @@
 <div align="center"> moon knight fandom iwc unless friend. i get anxious and have heart issues over it hrrmm
 <div align="center"> n1 steven grant yumeshipper + n1 marcsteven + jakesteven + marcjakesteven shipper :3c
 <div align="center"> PLEASE PLEASEPLEASE DO NOT MENTION SENTIMENTAL ROBOTS AROUND ME I AM SO FUCKING SERIOUS I AM TERRIFIED I AM SCARED
-<div align="center"> ART OF THEM ETC IS FINE BUT GOING INTO HOW THEY LIVE A NORMAL LIFE SURROUNDED BY PEOPLE WITHOUT KNOWING THEY'RE A ROBOT OR HOW THEY'VE BUILT A LIFE FOR THEMSELF AS A ROBOT FUCKING SCARES ME IT TERRIFIES ME PLEASEE DON'T
+<div align="center"> ART OF THEM ETC IS FINE BUT GOING INTO HOW THEY LIVE A NORMAL LIFE SURROUNDED BY PEOPLE WITHOUT KNOWING THEY'RE A ROBOT OR HOW THEY'VE BUILT A LIFE FOR THEMSELF AS A ROBOT FUCKING SCARES ME IT TERRIFIES ME PLEASEE DON'T'
+<div align="center"> DO NOT TALK ABOUT MW4 WITH ME. DO NOT TALK ABOUT MW4 WITH ME. I WILL BE SICK. I DO NOT WANT TO HEAR IT. THAT IS MY SOURCE. I WILL ACTUALLY CRASH OUT AND START TWEAKING IT MAKES ME HAVE HORRIBLE HEART ISSUES DO NOTTT. NOT EVEN IN A JOKING MANNER. DO. NOT. PLEASE!!!!!
 
 THANKYOU SO FUCKING MUCH  [entitlement-town](https://github.com/entitlement-town) + [ponytowns-rewards](https://github.com/ponytowns-rewards)
 <div align="center"><img width="347" height="31" alt="image" src="https://github.com/user-attachments/assets/13c0fbb8-198e-4e9c-ab59-3a2687f4c55a" />

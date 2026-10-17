@@ -5,11 +5,12 @@
  
 ![](https://komarev.com/ghpvc/?username=stevengrants&color=868fcf&style=plastic&label=travelers+of+the+night&base=545)
 
-<div align="center">  my name's callie, moonie, si, or hound!
+<div align="center">  my name's **callie, moonie, marc**, si, or hound!
 <div align="center"> i'm a medically recognised osdd-1b system.
 <div align="center">i love my girlfriends twix, riley, steven and pricey so so much.
 <div align="center"> moon knight fandom iwc unless friend. i get anxious and have heart issues over it hrrmm
-<div align="center"> n1 steven grant yumeshipper + n1 marcsteven + jakesteven + marcjakesteven shipper :3c 
+<div align="center"> n1 steven grant yumeshipper + n1 marcsteven + jakesteven + marcjakesteven shipper :3c
+<div align="center"> PLEASE PLEASEPLEASE DO NOT MENTION SENTIMENTAL ROBOTS AROUND ME I AM SO FUCKING SERIOUS I AM TERRIFIED I AM SCARED
 
 THANKYOU SO FUCKING MUCH  [entitlement-town](https://github.com/entitlement-town) + [ponytowns-rewards](https://github.com/ponytowns-rewards)
 <div align="center"><img width="347" height="31" alt="image" src="https://github.com/user-attachments/assets/13c0fbb8-198e-4e9c-ab59-3a2687f4c55a" />
